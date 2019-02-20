@@ -1,0 +1,2 @@
+# fotos
+Reportaje forografico
